@@ -1,7 +1,7 @@
 based on this video:
 
 
-on my channel on youtube:
+on my youtube-channel:
 https://goo.gl/mdhUQ5
 
 subscribe if you like it
